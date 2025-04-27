@@ -1,5 +1,5 @@
 # 💫 About Me:
-Actualmente estoy estudiando Ingenieria en sistemas Informaticos en la Universidad de El Salvador
+Future Computer Systems Enginee
 
 
 ## 🌐 Socials:
